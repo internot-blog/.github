@@ -1,1 +1,1 @@
-**Welcome to the Internot...**
+**Welcome to the [Internot...](https://internot.blog)**
